@@ -1,6 +1,6 @@
 # iPhone 16 Clay Mockups
 
-The **[iPhone 16 Clay Mockups](https://www.mockupdaddy.com/download/iphone-16-clay-mockup)** are the perfect choice for designers, developers, and marketers looking to create stunning visuals. This collection features sleek, minimal clay designs tailored to meet professional creative standards. Whether you’re showcasing app designs, advertising campaigns, or branding concepts, these mockups provide the versatility and quality you need.
+**[iPhone 16 Clay Mockups](https://www.mockupdaddy.com/download/iphone-16-clay-mockup)** are the perfect choice for designers, developers, and marketers looking to create stunning visuals. This collection features sleek, minimal clay designs tailored to meet professional creative standards. Whether you’re showcasing app designs, advertising campaigns, or branding concepts, these mockups provide the versatility and quality you need.
 
 ![image](https://github.com/user-attachments/assets/8388b7cf-be9a-4b8e-9c16-6bb79be81775)
 
